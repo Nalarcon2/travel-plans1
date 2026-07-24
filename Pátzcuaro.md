@@ -1,1 +1,0 @@
--[Casa de los Once Patios](https://www.patzcuaro.com/atractivos/5_once_patios.html)
